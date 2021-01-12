@@ -1,2 +1,2 @@
 # PC-Builds
-Personal Builds I've done
+Photots of the personal PC builds I've completed.
